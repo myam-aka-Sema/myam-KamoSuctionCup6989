@@ -85,4 +85,8 @@ questionable sleep schedule ♡
 
 <sub>I mainly hang out on the 18+ Russian server and only occasionally use the others.</sub>
 
+<p aling="center">
+  <img width="433" height="141" alt="Image" src="https://github.com/user-attachments/assets/0d924ca9-ee8b-4fcf-a233-f245403ecc41" />
+</p>
+
 </div>
