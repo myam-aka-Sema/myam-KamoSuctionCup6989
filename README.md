@@ -82,5 +82,6 @@ questionable sleep schedule ♡
 </p>
 
 <sub>I mainly hang out on the 18+ Russian server and only occasionally use the others.</sub>
+<sub>I luv my ex lol. ^_^</sub>
 
 </div>
