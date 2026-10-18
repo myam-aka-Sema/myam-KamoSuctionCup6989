@@ -45,6 +45,13 @@ Skullgirls · TRIBE NINE · Arknights · Arknights: Endfield ·
 Sky: Children of the Light · NTE: Neverness to Everness ·
 Duet Night Abyss · Umamusume: Pretty Derby · Mobile Legends: Bang Bang
 
+<sub>HI3rd - 207993978</sub>
+<sub>Genshin - 615406814</sub>
+<sub>HSR - 701030704</sub>
+<sub>ZZZ - 1000730079</sub>
+<sub>Endfield - 6218751984</sub>
+<sub>NTE - 218216777345</sub>
+
 other interests
 
 Alien Stage · Tokyo Ghoul · Death Note · Bungou Stray Dogs ·
