@@ -75,9 +75,9 @@ Rick and Morty · YouTube · Spotify
 
 🦇 dni
 
-base dni + all former friends / acquaintances + If under 18
+base dni + all former friends / acquaintances + If under 18 (16 max)
 
-also people and groups from the hoyo-zone fandoms.
+also people and groups from the hoyo-zone fandoms. (applies to the #1 ru server)
 
 sorry, but some of you are genuinely weird as fuck, imo :) ♡
 
