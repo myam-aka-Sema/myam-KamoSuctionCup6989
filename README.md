@@ -89,12 +89,8 @@ sorry, but some of you are genuinely weird as fuck, imo :) ♡
 
 questionable sleep schedule ♡
 
-<p align="center">
-  <img width="314" height="102" alt="Image" src="https://github.com/user-attachments/assets/4ad2a024-ba53-4733-b949-d9b6d5483573" />
-</p>
+<img width="135" height="106" alt="Image" src="https://github.com/user-attachments/assets/fb22b14d-2e23-4d17-ab9f-b0fe27285e4b" />
 
 <sub>I mainly hang out on the 18+ Russian server and only occasionally use the others.</sub>
-
-<sub>I luv my ex lol. ^_^</sub>
 
 </div>
